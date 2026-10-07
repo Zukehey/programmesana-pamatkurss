@@ -2,9 +2,8 @@
 
 ## Palaišana
 
-## Ergonomika
--
--
--
--
--
+## Ergonomika  
+
+- 
+- 
+- 
